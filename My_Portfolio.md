@@ -92,6 +92,8 @@ Here is a selection of my work that demonstrates my capabilities across differen
 
 - [Short Reel](https://drive.google.com/file/d/1vyIGBY2yjSGtL7PbiBARINGpcOxGnKne/view?usp=drivesdk)
 
+## **[Behance Profile](https://www.behance.net/rustamali1)**
+
 ## **🎓 Education & Certifications**
 - B.S. in Communication and Media Sciences - Ziauddin University (2022 - Present)
 
